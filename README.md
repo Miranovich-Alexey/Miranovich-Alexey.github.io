@@ -1,2 +1,2 @@
-# Miranovich-Alexey.github.io
-Мои первые опубликованные сайты
+# Miranovich Alexey
+Мой первые опубликованный сайт
